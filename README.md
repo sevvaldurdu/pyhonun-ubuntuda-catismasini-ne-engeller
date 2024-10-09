@@ -1,0 +1,1 @@
+# pyhonun-ubuntuda-catismasini-ne-engeller
